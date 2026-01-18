@@ -1,3 +1,4 @@
+# Visit Bubbler.live in Discord Link 🥇 https://discord.gg/GHW9q6wE
 # Fortnite Hardware Spoofer
 
 Permanent hardware spoofer for Fortnite to bypass EasyAntiCheat (EAC) hardware bans.
